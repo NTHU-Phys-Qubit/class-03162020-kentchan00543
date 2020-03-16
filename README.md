@@ -1,4 +1,4 @@
 # class-03162020
 
-Name: ³¯¥Ã°·
+Name: CHAN WENG KENT
 ID: 105022164
